@@ -1,0 +1,1 @@
+# akihas2.github.io
